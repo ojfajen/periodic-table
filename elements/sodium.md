@@ -14,4 +14,4 @@ It is a soft, silvery-white, highly reactive metal. Sodium is an alkali metal, b
 
 Sodium has only one stable isotope.
 
-
+lol.
